@@ -17,7 +17,7 @@ Team name PUPMEK
 ---
 
 ## คนที่5
-<a href="https://ibb.co/zHfmc8HB"><img src="https://i.ibb.co/sJ3gS5JN/335464968-220572103836521-3638810820657453517-n.jpg" alt="335464968-220572103836521-3638810820657453517-n" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>upload private photos</a><br />
+<a href="https://ibb.co/zHfmc8HB">
 
 **1.คุณชื่ออะไร และกำลังเรียนอยู่ที่ไหน**  
 ชื่อ นายอภิวัฒน์ มิ่งมิตร ชื่อเล่นชื่อเเมกซ์  
